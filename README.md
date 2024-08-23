@@ -5,3 +5,5 @@
 - 📫 Puedes contactarme si tienes paciencia y quieres ayudarme a entender mejor este mundo tecnológico.
 - 😄 Pronombres: [aquí puedes poner tus pronombres]
 - ⚡ Un dato curioso: A pesar de no saber mucho de computadoras, siempre estoy dispuesto a ayudar y aprender.
+
+- https://youtu.be/v4DX9r3nm74?si=4TlGhvAVmgS7LL70
